@@ -27,7 +27,6 @@ i often draw and play games, i sometimes write, and i just try to vibe and survi
   (doesn't mean i won't block +20 years old people who are being weird too)
 - being on pony town's 18+ server does not mean you can just come up to me and say overly sexual things to me LOL. get lost. </3
 - YES I can flirt, but that really does not mean I want anything with anyone-
-- 
 
 
 ---
